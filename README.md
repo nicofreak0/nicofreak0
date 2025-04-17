@@ -1,4 +1,4 @@
-- 👋 Hello, I’m @nicofreak0
+- 👋 Hello, I’m Lydia
 - 👀 I’m interested in videogame programming
 - 🌱 I’m currently learning computer programming
 - 📫 How to reach me: Instagram: @nicofreak0
